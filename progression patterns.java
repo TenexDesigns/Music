@@ -11,6 +11,34 @@ Progression 10 (happy) 4,5,1
 
 
 
+  5- and  1- tension and relelase
+1,3,6
+
+
+  1- resolved, home based
+  2 sound is diffrent, light and dark, surprise look
+  3 melancholy petty
+  4 peaceful happy relaxed, christian 
+  5unreolved , has motion
+  6 sad
+  7, not use in modern music
+
+
+  club base lines,
+  Songs  = Melodies + chords  -- Trian yourself to hear melofies, the chords, then combine them both
+  Melodies - Are jsut a patern of notes from a scale
+  Melofies come from our scales
+  & melody notes , 7 chaords
+
+
+  chords and ryhmes cant be copyrifgetes , so if you like one, STEAL IT
+  MELODIES ARE COPYRIFHETD, - DO NOT STEAL IT
+  most common chords -1,4,5,6
+
+
+
+  chords on diffrent intrumemnts --- guitar
+  you want to tell a story with the melodies, but there is no lyrics, its just the melodies telling the story
 
 
 1. 0:18 euphoric/uplifting
