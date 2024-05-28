@@ -1,3 +1,6 @@
+rythm and melodies -- for songs
+
+
 Progression 1 (uplifting) / 5, 6, 7, 1 
 Progression 2 (serious) / 6, 7, 1, 7 
 Progression 3 (tense) / root chord 
