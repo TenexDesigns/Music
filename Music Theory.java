@@ -142,8 +142,14 @@ SILVER CHORS --- NOTS USED AS OFTEN
 
 
 
+chrod progressions
+
+  THIS IS OW WE START TO TELL A STORY
 
 
+  CHORD PROGRESSIOSN --- Series of chordd played ina acertain order
+
+I - MAJOR      II-MINOR       III- MINOR      IV - MAJOR        V-MAJOR       VI -MINOR
 
 
 
