@@ -1,3 +1,4 @@
+rythm - apttern in time, do not repaet it too much, and dont hav too much of it
 rythm and melodies -- for songs
 
 
